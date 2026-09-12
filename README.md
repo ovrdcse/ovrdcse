@@ -14,7 +14,9 @@
    
    i'm very open to making friends, feel free to shoot me a whisper, sign my ata, etc. 
 
-  i ask that proshippers, darkshippers and those alike do not interact with me. i also do not support endogenic systems, don't interact with me either. i block freely and encourage you to block me if you don't like me.
+ dni: i ask that proshippers, darkshippers and those alike do not interact with me. i also do not support endogenic systems, don't interact with me either. i block freely and encourage you to block me if you don't like me
+ 
+ byi: i voice my opinions and thoughts openly (respectably...) i avoid drama & think people who actively seek drama are weird asf. i have DID although i don't talk about this much & don't share much info about the system please forgive my memory in some cases. i try my best to write most things down. i have a tendency to ramble a lot. i love to PLAYFULLY make fun of my friends. 
 
 interests: jujutsu kaisen, deathnote, naruto, sailor moon, inuyasha ++ some other random animes. lots of story / your choices matter games but detroit become human is one of my alltime favorites. ALSO what remains of edith finch. american law (in turn i know a little about british law), medicine/pharmaceuticals, infectious diseases. baking. i dabble in a lot of music genres excluding kpop and country. (just not my personal thing) 
 </details>
