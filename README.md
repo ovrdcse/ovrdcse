@@ -1,4 +1,4 @@
-
+wip. im mad at github. so ill do this later. ok  ? just pretend this is really cute
 <details>
   <summary><p align="center"> ⠀◟ ͜ ׁ⠀⠀ extended⠀ bio⠀ </p></summary>
 
