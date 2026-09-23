@@ -1,6 +1,6 @@
 wip. im mad at github. so ill do this later. ok  ? just pretend this is really cute
 <details>
-  <summary><p align="center"> ⠀◟ ͜ ׁ⠀⠀ extended⠀ bio⠀ </p></summary>
+  <summary><p align="center"> ⠀◟ ͜ ׁ⠀⠀ click me 2⠀see bio⠀ </p></summary>
 
    i'm riley, narcisse, or whatever other name you may know me by (uzu, junepei, etc). you are free to call me whatever you please. i don't have a strict preferences about names.
    
