@@ -4,7 +4,7 @@ wip. im mad at github. so ill do this later. ok  ? just pretend this is really c
 
    i'm riley, narcisse, or whatever other name you may know me by (uzu, junepei, etc). you are free to call me whatever you please. i don't have a strict preferences about names.
    
-   i'm usually afk on the hit game pony.town, or attending an event for a regiment. you'll find me in non-catering regiscouts (either as a visitor or in InPf). 
+   i'm usually afk on the hit game pony.town, or attending an event for a regiment. you'll find me in non-catering regiscouts 
    
    i use any pronouns with a slight male preference. 
    
