@@ -26,5 +26,9 @@ rꪱ๋Ꙇᧉу ⠀ ⠀ ﹒⠀ ⠀  𝐥7 ⠀ ⠀ ﹒ ⠀ ⠀ $\color{#ca1414}{\
   dni : t.r.a.s.h, proship, and endogenic systems dni.
   
   i don't care about anything else as long as you're not hurting anyone
+  
+[![Alt Text](https://64.media.tumblr.com/7eb443b6e36314c8e16705433189d70a/1db2481957ca8027-e0/s100x200/85371a5781d36989289f8901555531289c15384f.gifv)](https://neverminq.atabook.org/)
+
+
 
 
