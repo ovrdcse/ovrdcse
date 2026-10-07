@@ -1,18 +1,24 @@
-wip. im mad at github. so ill do this later. ok  ? just pretend this is really cute
-<details>
-  <summary><p align="center"> ⠀◟ ͜ ׁ⠀⠀ click me 2⠀see bio⠀ </p></summary>
 
-   i'm riley, narcisse, or whatever other name you may know me by (uzu, junepei, etc). you are free to call me whatever you please. i don't have a strict preferences about names.
-   
-   i'm usually afk on the hit game pony.town, or attending an event for a regiment. you'll find me in non-catering regiscouts 
-   
-   i use any pronouns with a slight male preference. 
-   
-   i'm very open to making friends, feel free to shoot me a whisper, sign my ata, etc. 
+<div align="center">
+<table>
+  <tr>
+    <td>
+      <img src="https://64.media.tumblr.com/62ee7c9c8625ded679e40b1dcf339aa6/240f5d4ceac3811d-b4/s100x200/9d8780d3a7beac264311ac1084f7488a6fe7f7d2.gifv" width="350" alt="Description of image">
+    </td>
+    <td valign="center">
+      <p>    
+rꪱ๋Ꙇᧉу ⠀ ⠀ ﹒⠀ ⠀  𝐥7 ⠀ ⠀ ﹒ ⠀ ⠀ mɑꙆᧉ
 
- dni: i ask that proshippers, darkshippers and those alike do not interact with me. i also do not support endogenic systems, don't interact with me either. i block freely and encourage you to block me if you don't like me
- 
- byi: i voice my opinions and thoughts openly (respectably...) i avoid drama & think people who actively seek drama are weird asf. i have DID although i don't talk about this much & don't share much info about the system please forgive my memory in some cases. i try my best to write most things down. i have a tendency to ramble a lot. i love to PLAYFULLY make fun of my friends. 
+⠀ ⠀ᑯуꜱꙆᧉ𝗑ꪱ๋ⲥ ⠀ ⠀ ﹒ ⠀ ⠀ ꜱуꜱ𝗍ᧉm
 
-interests: jujutsu kaisen, deathnote, naruto, sailor moon, inuyasha ++ some other random animes. housemd favorite show,, giggle. lots of story / your choices matter games but detroit become human is one of my alltime favorites. ALSO what remains of edith finch. american law (in turn i know a little about british law), medicine/pharmaceuticals, infectious diseases. baking. i dabble in a lot of music genres excluding kpop and country. (just not my personal thing) 
-</details> 
+⠀ ⠀ɑꙆ⍵ɑуꜱ ɑ𝖿𝗄 ⠀ ⠀  ⠀ ⠀  <img src="https://64.media.tumblr.com/82aec420927c392b978169991fab5921/240f5d4ceac3811d-c3/s100x200/b35a67b85931d87fe17d8daa04dc4f7168eec919.gifv" width="34" alt="Description of image"></p>
+    </td>
+  </tr>
+</table>
+<div align="center">
+  
+![](https://64.media.tumblr.com/cccc947060d71cd699b8a4de3a589bf5/75fd9c94bba3153b-c1/s100x200/b1e109c9de99c4528b86e940bbadaff0fc3228ec.gifv) ![](https://64.media.tumblr.com/e189cb3d470baf1708d478309261a854/75fd9c94bba3153b-ac/s100x200/a731944ad7dc0e4e885f415294c91f86adaacd61.gifv) ![](https://64.media.tumblr.com/128b7f8e1c791e606cbb561394bbe6cd/75fd9c94bba3153b-8a/s100x200/a8b32f6f68f9acb09bae615266349083d5758ad9.gifv)
+
+![](https://64.media.tumblr.com/1bc2e6fa95c6df793b7b16f793c2b4f1/75fd9c94bba3153b-df/s250x400/23ca6ad5a08a06ad05ebf4e9628e951b4a90d3da.gifv) ![](https://64.media.tumblr.com/87058034351f22366f61e69c6d3bc01a/75fd9c94bba3153b-63/s250x400/c21d6811f214c74c6356cedc7b436daaf600a30a.gifv)
+
+
