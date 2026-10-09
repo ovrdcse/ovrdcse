@@ -24,7 +24,7 @@ rꪱ๋Ꙇᧉу ⠀ ⠀ ﹒⠀ ⠀  𝐥7 ⠀ ⠀ ﹒ ⠀ ⠀ $\color{#ca1414}{\
 ![](https://64.media.tumblr.com/1bc2e6fa95c6df793b7b16f793c2b4f1/75fd9c94bba3153b-df/s250x400/23ca6ad5a08a06ad05ebf4e9628e951b4a90d3da.gifv) ![](https://64.media.tumblr.com/87058034351f22366f61e69c6d3bc01a/75fd9c94bba3153b-63/s250x400/c21d6811f214c74c6356cedc7b436daaf600a30a.gifv)
 
 <div align="center">
-  dni : t.r.a.s.h, proship, and endogenic systems dni.
+  dni : t.r.a.s.h, proship, and endogenic systems 
   
   i don't care about anything else as long as you're not hurting anyone
   
